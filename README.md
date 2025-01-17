@@ -1,0 +1,2 @@
+This project focuses on exploring the vibrant world of Jamaican cuisine, highlighting classic dishes like fried dumplings, festival, and fried plantain. By diving into their cultural significance, unique ingredients, and cooking techniques, this initiative aims to provide readers with an accessible guide to preparing and enjoying authentic Jamaican flavors at home. Through step-by-step recipes and background information, participants will gain a deeper appreciation for the island’s culinary traditions and the rich heritage that has shaped these beloved dishes.
+
